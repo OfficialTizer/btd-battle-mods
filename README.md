@@ -1,2 +1,3 @@
 # btd-mods
 hello guys its the official tizer here i sell my mods for money but as a holloween treat you can have them for free!!!!!!!!!
+YOU CAN HAVE THEM FOR FREE!! no money Each tower skin - $1 Tower skin bundle (all tower skins) - $10 All powers - $7 Profile skin bundle - $5 Projectile bundle - $5 100k medallions - $1.50 10 millions medallions - $7.50 (+ $5 for every 10 million after that) Badge added/ removed - $2.50 for each badge All balloon decals - $2 10k farmers - $5 10k robo farmers - $7.50 Clean slate (w/l) - $1.50 Custom win/loss - $5 Cosmetic Bundle (towerskins, projectiles, balloon decals) - $20 Advanced modding of account: 1K views: $5 2K views: $7.50 5K views: $10 10K views: $15 Custom Request (0 - 20k): $5 - $30
